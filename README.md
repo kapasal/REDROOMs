@@ -1,5 +1,3 @@
-# 暗黑區
-      那個人，不對，是那個面具。折磨我，蠶食我。
-     我的思想，我的精神，無所不在的身影是它。
-     ℃/殺人/性/骯髒的人類/巨人/高大的身影/犯罪/無視/犯賤/軀殼/人性/美好只是幻想/那個人？/幻想/充斥/奴隸？/割頭/砍/刀/槍/骯髒的世界/貧窮的人/富貴的人/有這信仰的人/魔鬼/笑？/異教徒/語言沒有高低貴賤之分/過分/愚蠢/道德倫理/奇藝/人類結晶/模仿..................
-    內心中為他祈禱著，希望Allah能饒恕這些愚蠢且無知且骯髒的自私的且無禮的人類，但前提是:必須信奉Allah
+# 蒐集網路資源 
+### 警告:紅房子內容有可能引起觀看者不適，請仔細閱讀鏈接中的內容。
+# http://m.baidu.com/from=1019023b/bd_page_type=1/ssid=0/uid=0/pu=usm%401%2Csz%40320_1003%2Cta%40iphone_2_7.0_1_/baiduid=AEDEF591E20B7B9750A72DE3628BBB64/w=0_10_/t=iphone/l=3/tc?ref=www_iphone&lid=5976980776553126127&order=2&fm=alop&tj=www_normal_2_0_10_title&vit=osres&m=8&srd=1&cltj=cloud_title&asres=1&title=%E5%85%B3%E4%BA%8E%E8%88%86%E8%AE%BA%E7%9B%91%E7%9D%A3%E7%9A%84%E6%B3%95%E5%BE%8B%E7%95%8C%E9%99%90&dict=32&w_qd=IlPT2AEptyoA_ykx5B5p9BKu0DBSfIa&tcplug=1&sec=28227&di=1811975809bf8fa4&bdenc=1&nsrc=IlPT2AEptyoA_yixCFOxXnANedT62v3IEQGG_z-V0SaymI39h47lItgfEFXMUjrIBVXstGOQthYYwk_d0WMizBAxradltWkh6SWhuKC

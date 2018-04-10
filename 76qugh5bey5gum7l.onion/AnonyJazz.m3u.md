@@ -1,3 +1,3 @@
 # 這可是我見過網路電臺裏面最優秀的了，內置爵士音樂以及多種音樂特色！音樂純潔而悅耳。
 #### （此鏈接需要VPN以及tor代理）AnonyJazz.m3u
-http://76qugh5bey5gum7l.onion/AnonyJazz.m3u
+http

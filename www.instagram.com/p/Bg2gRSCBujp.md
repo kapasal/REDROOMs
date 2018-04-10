@@ -1,2 +1,1 @@
 # 天生的優秀，平常人無法比擬！
->https://www.instagram.com/p/Bg2gRSCBujp/

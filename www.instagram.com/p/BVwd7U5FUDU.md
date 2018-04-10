@@ -1,2 +1,1 @@
 # 非洲那些狂野的暴力，在人的本性上展露無遺
-#### https://www.instagram.com/p/BVwd7U5FUDU/

@@ -1,2 +1,1 @@
 # 這個也許是我有史以來見過最惡心的啦！附上link，自己體會感受，我只能說:骯髒的婊子，下地獄吧！
-#### http://varietymodels.com/2-girls-1-cup-video/

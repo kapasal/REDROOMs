@@ -1,2 +1,1 @@
 # 全世界僅有600人擁有紫羅蘭眼睛！而且擁有紫羅蘭眼睛的人一般比較好看。
-> https://www.jkforum.net/forum.php?mod=viewthread&tid=8850918&extra=&ordertype=1&threads=thread

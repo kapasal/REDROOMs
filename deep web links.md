@@ -1,5 +1,5 @@
 # 極致神秘的網址
-## 黑暗網址，其實也沒什麽！主要就是在暗網區域變得神秘。
+## 黑暗網址收藏
 ### http://deepweblinks.org/
 http://tetatl6umgbmtv27.onion/
 http://zqktlwi4fecvo6ri.onion/wiki/index.php/Main_Page
@@ -235,20 +235,20 @@ http://zqiirytam276uogb.onion/ – Thorlauta
 http://ocbh4hoqs37unvv6.onion – French Deep Web
 deepweb
 1.http://newmap.norsecorp.com/  norse attack map
-2.http://22u75kqyl666joi2.onion/  暗网中文论坛
-3.http://reloadedudjtjvxr.onion/road.php  丝绸之路3.0
-4.http://www.normalpornfornormalpeople.com/    normal人体试验血腥网址（需要账号）
+2.http://22u75kqyl666joi2.onion/  中文論壇
+3.http://reloadedudjtjvxr.onion/road.php  絲綢之路3.0
+4.http://www.normalpornfornormalpeople.com/    normal人體實驗血腥（需要账号）
 5.http://prnstmrpfkgkaw5v.onion/ 
 6.http://iuhcjx6fpeafstuu.onion/  Scream bitch！
 7.http://6soqvgf7mrjc7w3j.onion/bbs/index.php 114中文论坛
 8.http://6soqvgf7mrjc7w3j.onion/chat/blab73/index.php  114聊天室 （马克斯AKeD jasonlee1573）
-9.http://xmi6ngumdv6ohjbm.onion/  天堂庄园CP网址
+9.http://xmi6ngumdv6ohjbm.onion/  
 10.http://smok6do2tvv6ekv2.onion/  SMOKEBLES
 11.http://kpvz7kpmcmne52qf.onion/wiki/index.php/Main_Page  uncensore hidden wiki
 12.http://bdpuqvsqmphctrcs.onion/   Anarchy网址导航
-13.http://xkow4dnkw7cusncz.onion/  暗网中文论坛2
+13.http://xkow4dnkw7cusncz.onion/  暗網中文論壇2
 14.http://rfwtogljhrrzxyrl.onion/  lolita city
-15.http://mail2tor2zyjdctd.onion/  Mail2tor邮箱
+15.http://mail2tor2zyjdctd.onion/  Mail2tor電郵
 16.http://underdj5ziov3ic7.onion/category/CHINESE  中文网址导航
 17.http://eg63fcmp7l7t4vzj.onion/ 秘密树洞
 18.http://opea6td2pg66qouf.onion/  torbay论坛中文
@@ -258,12 +258,12 @@ deepweb
 22.http://kbhpodhnfxl3clb4.onion/  tor搜索引擎
 23.http://loupsycedyglgamf.onion/PSYC/?room=EDN  聊天室
 24.http://www.glowing-bear.org/  glowing bear聊天室
-25.http://b4d3igwmoo5355ur.onion/greatc/login.php 中文聊天室 挂了
+25.http://b4d3igwmoo5355ur.onion/greatc/login.php 中文聊天室
 26.http://32pbf32xi6ccm63z.onion/blog/temas/living-room/  成人porn直播间
 27.http://www.onion.link/  onion city搜索引擎
 28.http://tt3j2x4k5ycaa5zt.onion/chat.php  my chat聊天室
 29.http://dtt6tdtgroj63iud.onion/sse/renderer?use=onions&name=default Shitty onion search
-29.http://2fap3cpmi3coso5y.onion/  porn下载
+29.http://2fap3cpmi3coso5y.onion/  porn下載
 30.https://secure.imvu.com/signup/index/?avset=bubbles  imvu聊天室(http://www.imvu.com/rooms/?search_terms=Egypt+Cafe+Arab)
 31.https://zh.wikipedia.org/wiki/Wikipedia:%E9%A6%96%E9%A1%B5  wiki
 32.http://thehiddenwiki.org/  another hideen
